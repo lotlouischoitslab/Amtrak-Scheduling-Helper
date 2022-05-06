@@ -1,0 +1,24 @@
+# Team Contract for Pineapple with Ketchup
+
+## Communication
+### Team Meetings: 
+Our team will meet every week for at least an hour. If we need to meet more than once a week we may do this but as a base requirement we will have one meeting per week. We will try our best to meet in person at a designated time and location, if this is not possible for all members, then we will meet over Zoom.  We are most likely going to meet Tuesday nights or Friday afternoons as those are the best times for all of us.  We plan on meeting in the Grainger library so we can use the whiteboards and collaboration tables.  If we have to meet online, we will use zoom to best replicate the in person meetings.  We do not need to take notes as we are all going to be in constant communication and are friendly with each other so we can easily ask if one person has a question about another person’s part.  
+
+## Assistance: 
+In general we are going to plan on using our team’s discord server to ask each other questions and we will be as responsive as possible to each other with the main goal of meeting in person to get work done if we need to.  There is no set time that we have for how quickly we have to respond as we all understand that each of us are very busy - not only with this class but also others and life in general - so as long as we are all getting all of our work done at the planned rate, we are going to be okay with temporary delays in communication.  We are planning on overall constantly being responsive as we are all pretty good about using discord and talking to each other for the work.
+
+## Respect:
+We will make sure to tell others in advance in case of delays and if we are not unable to meet that day. We will also respect each other's ideas and make sure everyone is getting a chance to contribute meaningfully. Finally, we are going to always listen to the ideas of each other and overall treat one another with respect. 
+ 
+## Collaboration
+### Work Distribution: 
+We will assign specific tasks to members so that we can divide and conquer. However, this will require us to collaborate well with each other and make sure that we have good communication in order to convey what each person is accountable for. Accountability will be important in order for us to tackle the project at hand. Complications could arise if a team member fails to be accountable or if someone fails to show up to meetings. In order to prevent this, we will distribute the work fairly and try to foster a group environment where someone can have some weight lifted off their shoulders if needed. We need to be honest about what can be accomplished in order to be the most productive. This would mean that someone who is more skilled or knowledgeable can take a more difficult task while someone with less knowledge can take an easier task. As long as the overall task can be completed properly, it is less important whether one is tackling a more difficult deliverable. 
+
+### Time Commitment: 
+We expect at least 2-3 hours per week from each group member. We need to account for commitments from other classes as we all have busy schedules. Also, some of us are in 222 meaning that we will have another project to be working on as well. For this reason, we will have realistic expectations and be understanding of each other. But more than the amount of time we meet, it is important that specific tasks are completed by a given time. Other time commitments could be CA/Research/Internships that people have, when such commitments occur from these activities, we need to make sure to schedule around these conflicts and plan accordingly. 
+
+### Conflict Resolution:
+If a conflict has occurred, we will discuss further together to come up with a resolution we can agree upon. We need to ensure that we can work around these conflicts and come towards some type of agreement or resolution. If a situation arises, the first step will be identifying the situation and that there is a problem. If one person is unable to complete a task on time or a delay occurs, we will help the team member complete the task and accommate that deficiency, because we just want to ensure that the task is completed. We would prefer for a member to be honest about their capabilities than to delay our overall project. Another situation that may arise is a member showing up late to meetings or not showing up at all. The important thing is to identify that this is occurring and then address the issue by asking that member why they are failing to show up. If it is a schedule conflict, we can work around that. If other situations arise, we will handle them accordingly by communicating effectively with each other. 
+
+## Member Names and Signatures
+Abhi Vinnakota (asv7), Louis Sungwoo Cho (louissc2), Joshua Brown (jdbrown6), Sambhav Gupta (sambhav4).
